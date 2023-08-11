@@ -1,1 +1,0 @@
-Kinic DAO - Proposal to enable principal kavk3-oyaaa-aaaao-ajihq-cai in SNS-W to initiate the generation of an SNS for Kinic
